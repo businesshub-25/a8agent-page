@@ -5,7 +5,7 @@
 # Businesshub‑25 | A8Agent
 ### Creating tools that help parents find their life balance.
 
-**Perth, Western Australia**
+**:australia: :kangaroo: :koala:**
 
 ---
 
